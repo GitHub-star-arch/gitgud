@@ -1,1 +1,1 @@
-There once was a ninja monkey and he jumped good the end. 
+There once was a ninja monkey and he jumped good and he met chunky and they made monkey chunky.
